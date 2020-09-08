@@ -7,3 +7,5 @@ U stuurt het voorstel en de bijbehorende informatie – onder vermelding van het
 {{Adresgegevens}}
 
 Nadat wij uw voorstel hebben ontvangen, stellen wij vast wat de vervolgstappen gaan worden en nemen wij hierover met u contact op.
+
+Met vriendelijket
