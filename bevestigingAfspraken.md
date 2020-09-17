@@ -8,4 +8,3 @@ U zult ons over relevante ontwikkelingen informeren.
 
 Wij behouden ons het recht voor het thans ingenomen standpunt te herzien op basis van nieuwe ontwikkelingen en/of informatie dan wel het uitblijven daarvan.
 
-Met vriendelijke groet, 
